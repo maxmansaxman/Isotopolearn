@@ -1,0 +1,1 @@
+This is a place to put ideas for visuals to communicate concepts covered on the isotopolearn site.
